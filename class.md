@@ -1,0 +1,1 @@
+Ozer, from Quito. Working on Meta Front End Certification. 
